@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Justtedi
-- 👀 I’m interested in play games
+- 👀 I’m interested in playing games
 - 🌱 I’m currently learning about everything
 - 💞️ I’m looking to collaborate on something (still having no idea)
 - 📫 How to reach me ...
